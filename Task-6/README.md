@@ -15,7 +15,7 @@
     * It is a constant upgrading website with extraordinary additional updates to be added in the future.
     * The ticket is a easy buy thing where ~ricH alone~~ all people  can afford.
   I would request people to ==grab the ticket== ASAP to before its too late.
-              #### Hope it creatres a massive success for our humanity.
+  #### Hope it creatres a massive success for our humanity.
 * It's an online downloadable format ticket inorder to sustain the green environment.
   ``` 
      {
